@@ -1,4 +1,6 @@
 ## Hi there 👋
+## Fun fact i love when muscules man obam
+### Ask me about Politics
 
 <!--
 **skitergodlike-dotcom/skitergodlike-dotcom** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
